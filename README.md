@@ -5,3 +5,5 @@ Feel free to connect with Harpalsinh on his profile:
 LinkedIn: https://www.linkedin.com/in/harpalvaghela/
 
 Medium: https://medium.com/@harpalvaghela
+
+Website: https://www.harpalvaghela.com/
